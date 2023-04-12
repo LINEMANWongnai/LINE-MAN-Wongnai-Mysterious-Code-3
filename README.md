@@ -22,7 +22,7 @@ The winner will be determined by the fastest submissions, awarded through correc
 The competition begins on April 19, 2023 at 6:00 PM GMT+7 and ends on April 26, 2023 at 12:00 PM GMT+7  
 .
 
-Winners will be announced on September 30, 2022, on Facebook Page: Life at LINE MAN Wongnai 
+Winners will be announced on May 3, 2023, on Facebook Page: Life at LINE MAN Wongnai 
 
 .
 
