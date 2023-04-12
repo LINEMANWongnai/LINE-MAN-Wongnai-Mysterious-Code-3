@@ -1,4 +1,4 @@
-# LINE-MAN-Wongnai-Mysterios-Code-3
+# LINE-MAN-Wongnai-Mysterious-Code-3
 
 Get set for the coding puzzle as the Mysterious Code is back with more difficult challenges, amazing prizes, and incredible opportunities!
 
