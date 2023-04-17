@@ -15,7 +15,7 @@ The winner will be determined by the fastest submissions, awarded through correc
 - 2nd runner-up: Loudspeaker bluetooth Fender Monterey Black 
 - 4th place: In-Ear Headphone Beats Fit Pro Black
 - 5th place: Keychron Gaming Keyboard Q2 Hot swap RGB Backlight Knob - Black frame-A Blue switch Th
-- Top 50 coders: A fast-track opportunity to join with LINE MAN Wongnai Engineering Team.
+- Top 50 coders: A fast-track opportunity to join with LINE MAN Wongnai Engineering Team
 
 # Competition period
 
