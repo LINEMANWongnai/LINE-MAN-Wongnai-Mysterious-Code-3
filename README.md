@@ -10,7 +10,7 @@ The winner will be determined by the fastest submissions, awarded through correc
 
 # Special prizes
 
-- The Winner: Anda Seat Gaming Chair Kaiser 3 Size XL Whit
+- The Winner: Anda Seat Gaming Chair Kaiser 3 Size XL White
 - 1st runner-up: Apple Watch SE GPS 40mm Silver Aluminium Case with White Sport Band
 - 2nd runner-up: Loudspeaker bluetooth Fender Monterey Black 
 - 4th place: In-Ear Headphone Beats Fit Pro Black
