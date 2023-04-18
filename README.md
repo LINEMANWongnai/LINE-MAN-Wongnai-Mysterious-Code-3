@@ -6,7 +6,11 @@ Are you ready to crack the code, unlock amazing rewards, and secure a spot for a
 
 # How to become a winner
 
-The winner will be determined by the fastest submissions, awarded through correctly solving problems. In the case of a tie, the participant with the fastest time will win. We required all participants to share “LINE MAN Wongnai Mysterious Code” post and use #LMWNMysteriousCode2 in their social posts (limited to Facebook and LinkedIn). Eligible social posts need to have public viewing settings
+(1.) The download the challenge for the competition is located at 
+
+(2.) Please submit a simple code that solves the Mysterious Code 3 (.zip) via this link : https://bit.ly/LMWNMysteriousCode3
+
+The winner will be determined by the fastest submissions, awarded through correctly solving problems. In the case of a tie, the participant with the fastest time will win. We required all participants to share “LINE MAN Wongnai Mysterious Code” post and use #LMWNMysteriousCode3 in their social posts (limited to Facebook and LinkedIn). Eligible social posts need to have public viewing settings
 
 # Special prizes
 
