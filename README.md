@@ -1,6 +1,6 @@
 # LINE-MAN-Wongnai-Mysterious-Code-3
 
-![d13](https://user-images.githubusercontent.com/108649272/232693890-f8289423-bc2c-42e0-9a12-6cef1dcf0361.png)
+![d14](https://user-images.githubusercontent.com/108649272/232711244-f2639b24-6ca6-4a25-b91c-7f91af31edf0.png)
 
 Get set for the coding puzzle as the Mysterious Code is back with more difficult challenges, amazing prizes, and incredible opportunities!
 
