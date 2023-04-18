@@ -4,6 +4,8 @@ Get set for the coding puzzle as the Mysterious Code is back with more difficult
 
 Are you ready to crack the code, unlock amazing rewards, and secure a spot for a fast-track interview with the LINE MAN Wongnai Engineering Team?
 
+![d13](https://user-images.githubusercontent.com/108649272/232693890-f8289423-bc2c-42e0-9a12-6cef1dcf0361.png)
+
 # How to become a winner
 
 (1.) The download the challenge for the competition is located at https://bit.ly/Mysterious-code-challenge
