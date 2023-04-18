@@ -8,7 +8,7 @@ Are you ready to crack the code, unlock amazing rewards, and secure a spot for a
 
 # How to become a winner
 
-(1.) The download the challenge for the competition is located at https://bit.ly/Mysterious-code-challenge
+(1.) The download the challenge for the competition is located at https://bit.ly/Challenge-Mysterious-Code
 
 (2.) Please submit a simple code that solves the Mysterious Code 3 (.zip) via this link : https://bit.ly/LMWNMysteriousCode3
 
