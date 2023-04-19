@@ -9,6 +9,7 @@ Are you ready to crack the code, unlock amazing rewards, and secure a spot for a
 # How to become a winner
 
 (1.) We required all participants to share “LINE MAN Wongnai Mysterious Code 3” post and use #LMWNMysteriousCode3 in their social posts (limited to Facebook and LinkedIn). 
+
 *** Eligible social posts need to have public viewing settings ***
 
 (2.) The challenge for competition is located at https://bit.ly/Challenge-Mysterious-Code
