@@ -36,8 +36,6 @@ The competition begins on April 19, 2023 at 6:00 PM GMT+7 and ends on April 26, 
 
 Winners will be announced on May 3, 2023, on Facebook Page: Life at LINE MAN Wongnai 
 
-.
-
 --------
 📍 By submitting your answer you confirm you have read our campaign description and agreed to LINE MAN Wongnai [Terms and Conditions / Privacy Policy](https://drive.google.com/file/d/1QiaIjw3qK8jct17vMdLaBBwOJ6E6XeE1/view?usp=sharing)
 
