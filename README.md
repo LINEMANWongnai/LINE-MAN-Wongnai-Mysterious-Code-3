@@ -14,7 +14,7 @@ Are you ready to crack the code, unlock amazing rewards, and secure a spot for a
 
 (2.) The challenge for competition is located at https://bit.ly/Challenge-Mysterious-Code
 
-(3.) Please submit a simple code that solves the Mysterious Code 3 (.zip) via this link : https://bit.ly/LMWNMysteriousCode3
+(3.) Please submit a simple code and answer (.txt) that solves the Mysterious Code 3 (.zip) via this link : https://bit.ly/LMWNMysteriousCode3
 
 Remember, the key to winning is not only about submitting the correct solutions but also about submitting them quickly and with clean code. In the event of a tie, the participant with the fastest submission time will be declared the winner. 
 
